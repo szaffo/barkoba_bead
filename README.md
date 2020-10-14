@@ -1,0 +1,1 @@
+# barkoba_bead
